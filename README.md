@@ -1,3 +1,3 @@
-# Green-Sky.github.io
+# scam.rocks
 
 collab: [Assertores](https://Assertores.github.io)
